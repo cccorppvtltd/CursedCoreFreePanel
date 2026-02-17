@@ -73,10 +73,10 @@ Optimized for smooth operation and reliable functionality.
 ## Social Media
 
 YouTube:  
-[Subscribe Now]("https://youtube.com/@cursedcorecorp?si=GxulTG3NIoa2SxOa")
+[Subscribe Now](https://youtube.com/@cursedcorecorp?si=GxulTG3NIoa2SxOa)
 
 Discord:  
-[Join Now]("https://discord.gg/82ggss6Gzb")
+[Join Now](https://discord.gg/82ggss6Gzb)
 
 ---
 
